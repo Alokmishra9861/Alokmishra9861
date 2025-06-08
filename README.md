@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web Dev.**
 
-- 📫 How to reach me **email-alokmishra9861@gmail.com or linkedIn-www.linkedin.com/in/alok-mishra-338376264-**
+- 📫 How to reach me **email-alokmishra9861@gmail.com or linkedIn-www.linkedin.com/in/alok-mishra-338376264**
 
 <div align="center">
   <a href="www.linkedin.com/in/alok-mishra-338376264" target="_blank">
